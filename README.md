@@ -2,7 +2,7 @@
 - 👀 I’m interested in creating something through tech ⚙️.
 - 🌱 I’m currently learning Website development and Databases🛢️.
 - 💞️ I’m looking to collaborate on a Real world project 💻.
-- 📫 How to reach me nikhiladwani3@gmail.com 📭
+- 📫 How to reach me nikhiladwani3@gmail.com 📭 / 📞+91 8770338039
 - 😄 Pronouns: He/Him 👦🏻
 - ⚡ Fun fact: ...
 
